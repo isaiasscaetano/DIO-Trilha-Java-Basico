@@ -1,1 +1,1 @@
-sendo feito pela platforma de estudo DIO. 
+sendo feito pela plataforma de estudo DIO. 
